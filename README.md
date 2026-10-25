@@ -23,7 +23,8 @@ RED Sniper FULLFIC + Joseph Dunn heavy KIN.
 Mainly at valve/TF2 area or docks.
 
 <p align="center">
-“ Nothing personal, mate. I'm just better. “
+.ᐟ.ᐟ
+⋮ ⌖ ┆ “ Nothing personal, mate. I'm just better. “
 
 <p align="center">
 ᡕᠵデᡁ᠊╾━💥
