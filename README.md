@@ -1,16 +1,31 @@
-## Hi there 👋
+ᡕᠵデᡁ╾━
 
-<!--
-**MickMundySniper/MickMundySniper** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+   Mick ノ Dunn.
+ 
+  HE ノ it.
 
-Here are some ideas to get you started:
+—    “ Boom, headshot. “ .ᐟ.ᐟ
+⋮ ⌖ ┆ [straw](https://theredsniperirl.straw.page)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<picture>
+<img width="500" height="500" alt="image" src="https://media.discordapp.net/attachments/1541563977237143582/1564028000029253763/Untitled15_20261025211850.png?ex=6adfc615&is=6ade7495&hm=bf3fea99f10d221bab2bf051449b73a49a284f396cbe99de81e9b06875743ac4&=&format=webp&quality=lossless&width=1024&height=1024" align="left" hspace="25"/>
+</picture>
+
+
+<p align="center">
+C+H is always welcome! Mostly offtab so W2I.
+
+<p align="center">
+RED Sniper FULLFIC + Joseph Dunn heavy KIN.
+
+<p align="center">
+Mainly at valve/TF2 area or docks.
+
+<p align="center">
+“ Nothing personal, mate. I'm just better. “
+
+<p align="center">
+ᡕᠵデᡁ᠊╾━💥
+
+
