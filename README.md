@@ -2,7 +2,7 @@
 
    Mick ノ Dunn.
  
-  HE ノ it.
+  He ノ Him ONLY.
 
 —    “ Boom, headshot. “ .ᐟ.ᐟ
 ⋮ ⌖ ┆ [straw](https://theredsniperirl.straw.page) [guns.lol](https://guns.lol/crazedgunmen)
