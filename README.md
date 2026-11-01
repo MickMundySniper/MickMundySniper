@@ -1,6 +1,6 @@
 ᡕᠵデᡁ╾━
 
-   Mick ノ Dunn.
+   Mick ノ Sniper.
  
   He ノ Him ONLY.
 
@@ -17,7 +17,7 @@
 C+H is always welcome! Mostly offtab so W2I.
 
 <p align="center">
-RED Sniper FULLFIC + Joseph Dunn heavy KIN.
+RED Sniper FULLFIC
 
 <p align="center">
 Mainly at valve/TF2 area or docks.
